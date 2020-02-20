@@ -1,2 +1,2 @@
 # 🏡
-### [https://patshiu.github.io/Ridgewood-Rowhouse-Balcony/](https://patshiu.github.io/Ridgewood-Rowhouse-Balcony/)
+### [https://patshiu.github.io/Ridgewood-Rowhouse/](https://patshiu.github.io/Ridgewood-Rowhouse/)
